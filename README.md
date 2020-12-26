@@ -29,4 +29,3 @@ Email: support@indodax.com
 Call Center: 02150525588
 
 Live Chat: akses melalui homepage, web account, mobile app account
-
