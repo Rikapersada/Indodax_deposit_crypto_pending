@@ -25,6 +25,8 @@ Apabila anda menemui kendala serupa, anda dapat segera menghubungi kami dan deng
 Anda dapat kembali menghubungi kami pada:
 
 Email: support@indodax.com.
+
 Call Center: 02150525588.
+
 Live Chat: akses melalui homepage, web account, mobile app account.
 
